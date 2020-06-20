@@ -1,0 +1,1 @@
+I am typing in a text editor
